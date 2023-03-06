@@ -2,7 +2,7 @@ Might get deleted later on so sorryyy
 
 https://www.roblox.com.et/generator/slithrbeams/create
 
-https://tinyurl.com/app
+https://t.ly
 
 Link hider
 
